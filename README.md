@@ -6,3 +6,12 @@ My favorite foods:
 
 - Biryani
 - Dosa
+
+
+Suchi's favorite foods:
+
+- Kebbab
+- Tandoori chicken
+- Palak kichidi
+
+
